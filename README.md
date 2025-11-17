@@ -1,3 +1,3 @@
 Nama : Baso Rafiansyah
-NIM : D121231088
+NIM : D121231068
 Kelas : B
